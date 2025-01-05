@@ -1,7 +1,7 @@
 # Eggy Car Unblocked - Play Eggy Car | No Restrictions 🚗
 
-### [▶️ Play Eggy Car Unblocked Here](https://unblocked-gaming.github.io/eggy-car-unblocked/)
-### [🎮 Alternative Link](https://playeggycar.com/)
+# [▶️ Play Eggy Car Here](https://playeggycar.com/)
+# [🎮 Alternative Link](https://unblocked-gaming.github.io/eggy-car-unblocked/)
 
 <!--
  SEO Meta Information
